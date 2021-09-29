@@ -1,4 +1,4 @@
-Being in tinder is Time waste right ? yess right but If you still want to uses Then This bot might help you Saving your Time
+Being in tinder is Time waste right ? yess right but If you still want to use it. Then This bot might help you Saving your Time
 
 This is automatic logging in , passing through facebook login then getting into Tinder, Bot 
 
